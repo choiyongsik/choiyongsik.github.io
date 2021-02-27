@@ -1,1 +1,0 @@
-# choiyongsik.github.io
